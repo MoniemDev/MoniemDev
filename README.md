@@ -59,7 +59,7 @@ I share web dev tips, my story, and tech tutorials in Arabic to help Sudanese yo
 - Tech + education content
 - Motivation for war-affected youth
 
-> Follow me on TikTok: [@moniem.dev](https://www.tiktok.com/@moniem.dev)
+> Follow me on TikTok: [@moniem.dev](https://www.tiktok.com/@moniemdev)
 
 ---
 
